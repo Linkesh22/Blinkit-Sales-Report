@@ -1,1 +1,2 @@
 # Blinkit-Sales-Report
+Blinkit shows strong and stable sales performance, led by high-demand categories and medium-sized outlets. Supermarket-type stores consistently outperform others, and Tier 3 locations contribute significantly to overall revenue. With steady year-on-year growth and solid customer ratings, the business operates efficiently with clear strengths across product categories and outlet types.
